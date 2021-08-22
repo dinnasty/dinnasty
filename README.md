@@ -1,1 +1,1 @@
-### code fun python bad @StormCreeper
+### code fun python bad
